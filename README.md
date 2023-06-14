@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **lautanskr45@gmail.com**
 
-- ⚡ Fun fact **I an Funny**
+- ⚡ Fun fact **Now You can see me vol. 5**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
